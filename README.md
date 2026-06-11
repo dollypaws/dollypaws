@@ -1,7 +1,7 @@
 <p align="center">
-  <img src=https://i.postimg.cc/T2qfRv3z/Tumblr-l-1626688318646726.gif>
+  <img src=https://i.postimg.cc/XvLmSS2k/Untitled260-20260611225326.png>
 <p align="center">
-  <img src=https://i.postimg.cc/HkTmJZVr/Untitled248-20260509005210.png>
+  <img src=https://i.postimg.cc/6pdFcGnb/Untitled254-20260611225143.png>
 
 
 <p align="center">
